@@ -1,7 +1,7 @@
 This is the TFPA (Turkey and Frank Protection Association)
 We protect all turkeys
 We also protect long, flexible pencils, especially ones that are named "Frank"
-Join the TFPA today, or help the the poor turkeys.
+Join the TFPA today, or help the the poor turkeys in another way.
 You know those "Adopt-a-Road" signs?
 WELL ADOPT A TURKEY!
 
